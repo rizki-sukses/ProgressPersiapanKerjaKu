@@ -12,3 +12,9 @@ Dokumentasi persiapan kerja seorang tri yang semoga sebelum lulus kuliah sudah m
 - Mempraktekan commite di github
 - Membuat github lebih asik dipelajari
 - Banyak channel di github
+
+28 Juli 2023
+**Beresin pelatihan (100%)**
+- Sudah melakukan yang terbaik
+- Ujian dapat nilai 100
+- Sertifikat menunggu mu dan pekerjaan juga. Aamiin
