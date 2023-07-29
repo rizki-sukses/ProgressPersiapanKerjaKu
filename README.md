@@ -18,6 +18,3 @@ Dokumentasi persiapan kerja seorang tri yang semoga sebelum lulus kuliah sudah m
 - Sudah melakukan yang terbaik
 - Ujian dapat nilai 100
 - Sertifikat menunggu mu dan pekerjaan juga. Aamiin
-
-29 Juli 2023
-**Persiapan Interview HR**
